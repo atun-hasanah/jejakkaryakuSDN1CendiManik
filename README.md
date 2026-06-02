@@ -1,1 +1,0 @@
-# jejakkaryakuSDN1CendiManik
